@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently a third year Computer Science student, while working as a full-time Software Engineer.
+Software Engineer | Technical Project Manager
 
 
 ## 🌐 Socials:
